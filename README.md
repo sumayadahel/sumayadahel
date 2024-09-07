@@ -12,4 +12,4 @@
 
 💬 Always open to collaboration on **data science** and **AI** projects  
 
-📫 Feel free to reach out via LinkedIn or Email!
+📫 Feel free to reach out via [LinkedIn](https://www.linkedin.com/in/soumayadahel) or [email](mailto:soumayadahel8@gmail.com)!
